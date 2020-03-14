@@ -1,1 +1,0 @@
-# setitik-hitam
